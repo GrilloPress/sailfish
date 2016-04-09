@@ -1,0 +1,3 @@
+> Sailfish are highly prized game fish, and are known for their incredible jumps and great speed. They can swim 100 m in 4.8 sec. They can appear in a startling array of colours, from subdued browns and grays to vibrant purples and even silver. Their body colours are often highlighted by stripes of iridescent blue and silver dots. Sailfish can change their colours almost instantly—a change controlled by their nervous system. The sailfish can rapidly turn its body light blue with yellowish stripes when excited, confusing its prey and making capture easier, while signalling its intentions to fellow sailfish
+
+# Sailfish
